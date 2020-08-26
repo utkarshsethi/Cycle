@@ -1,3 +1,3 @@
 # Cycle
 
-Checklist for Buying an MTB
+Checklist for Buying a MTB
