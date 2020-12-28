@@ -1,3 +1,3 @@
 # Cycle
 
-Checklist for Buying a MTB
+Future Upgrdes plan
